@@ -1,1 +1,0 @@
-# shirokaras.github.io
